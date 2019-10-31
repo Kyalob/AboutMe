@@ -1,6 +1,6 @@
 # AboutMe
 Boniface Mwangangi Kyalo
-4 Farrington Square • Bethlehem, PA, 18015. • bmk222@lehigh.edu • https://www.linkedin.com/in/bonifacekyalo/
+4 Farrington Square • Bethlehem, PA, 18015. • 
 
 EDUCATION
 
